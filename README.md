@@ -3,7 +3,7 @@
 
 📚Estudio en la universidad Catolica de Tarija 
 
-◾ Estoy en la carrera de ingenieria mecatronia
+◾ Estoy en la carrera de ingenieria mecatronica
 
 ◾Este es mi primer año en la carrera
 
