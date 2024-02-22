@@ -1,16 +1,38 @@
-### Hi there 👋
 
-<!--
-**nicolmartinez18/nicolmartinez18** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# Hola! mi nombre es Nicol Martinez Mendez👋
 
-Here are some ideas to get you started:
+📚Estudio en la universidad Catolica de Tarija 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+◾ Estoy en la carrera de ingenieria mecatronia
+
+◾Este es mi primer año en la carrera
+
+🎵Me gusta todo tipo de musica
+
+LOGROS😊
+
+🌱Participe en las olimpiadas cientificas de biologia
+
+⚽Estuve en la seleccion tarijeña de futsal
+
+🏆Gane el primer lugar en diferentes campeonatos deportivos
+
+METAS🏁
+
+◾Ser una mejor persona en el ambito profesional y personal 
+
+◾Tener muchos amigos
+
+◾Pasar todos los desafios que se me atraviesen
+
+
+
+
+
+
+
+
+
+
+
+
